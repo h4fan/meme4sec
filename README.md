@@ -1,5 +1,5 @@
 # meme4sec
-meme4sec，security memes for ppt or fun
+meme4sec，security memes for ppt and fun
 
 [@hakluke](https://twitter.com/hakluke/status/1469805220829941765)
     
