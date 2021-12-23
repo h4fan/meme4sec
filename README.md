@@ -25,6 +25,9 @@ I thought it's funny. Let's collect security memes.
 
 ![pay](https://pbs.twimg.com/media/Eiw53XdXsAIofOu?format=jpg&name=small)
 
+[gf_256](https://twitter.com/gf_256/status/1473846799358177281)
+
+![free](https://pbs.twimg.com/media/FHQnv7OWYAIZbhv?format=png&name=360x360)
 
 ## videos
 
